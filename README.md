@@ -36,5 +36,5 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-- <a>[Ntwanano Makhubele ][((https://www.linkedin.com/in/ntwanano-makhubele-8305ba37b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))(LinkedIn)</a>
+- <a>[Shantanu Pandey ](https://www.linkedin.com/in/ntwanano-makhubele/)(LinkedIn)</a>
 - Email: ntwananocna@gmail.com
